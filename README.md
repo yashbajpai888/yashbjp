@@ -1,6 +1,6 @@
 
 #### Watch it live here - [yashbjp.netlify.app](https://yashbjp.netlify.app/)
-yeahh - THANK ME LATER :  CONTACT ME INSTAGRAM </> @imranpgda </>
+yeahh - THANK ME LATER :  CONTACT ME INSTAGRAM </> @ </>
 
 Title: Portfolio Website Source Code - Showcasing My Creative Journey
 
